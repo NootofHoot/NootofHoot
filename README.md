@@ -1,6 +1,6 @@
 ## NOOT! 🐦
 
-
+Hey! you can call me Noot! I like animal crossing (cityfolk is best), planting and pprograming of course! Im an full stack develouper who loves to exipierment in different areas of topics of programming, learning anything I can to further develoup my knowledge!
 <!--
 **NootofHoot/NootofHoot** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
