@@ -8,6 +8,7 @@
 - Planting!🌱
 - Reading, Dante´s Divine Comedy is peak! 🔥
 - Making Music! Trumpet player! 🎺
+- Full stack develouper! <img src="https://media.tenor.com/2hKngpUf2vEAAAAj/jevil-deltarune.gif" alt="jevil.gif" width="50" height="100">
 and I love programing of course! Im an board memeber on the non profit organization MILO to teach kids programming for free! 
 <a href="https://milocodingacademy.org/" style="display: inline-block; white-space: nowrap; text-decoration: none; vertical-align: middle;">
    <img src="https://img1.wsimg.com/isteam/ip/862c6b55-0d86-41b3-bef6-d6b29750d4f8/MILO%20CA2.png/:/rs=h:100,cg:true,m/qt=q:100/ll" 
