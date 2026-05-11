@@ -1,3 +1,4 @@
+<img src="https://images.gamebanana.com/img/Webpage/Game/Profile/Background/5ab3c9cc229d2.jpg" alt="uwu.jpg">
 ## NOOT! 🐦
 - Pronouns: She/Her♀️
 - Age: 16! 17 in June!
