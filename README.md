@@ -1,4 +1,4 @@
-<img src="https://images.gamebanana.com/img/Webpage/Game/Profile/Background/5ab3c9cc229d2.jpg" alt="uwu.jpg">
+<img src="https://images.gamebanana.com/img/Webpage/Game/Profile/Background/5ab3c9cc229d2.jpg" alt="uwu.jpg" width="1000" height="500">
 
 ## **NOOT!** 🐦
 - Pronouns: She/Her♀️
