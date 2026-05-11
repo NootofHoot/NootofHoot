@@ -24,3 +24,7 @@ I can program in
 - HTML
 - CSS
 - PYTHON 
+# **Learning**
+- Rust
+- C+
+- C#
