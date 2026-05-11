@@ -1,6 +1,6 @@
 ## NOOT! 🐦
--Pronouns: She/Her♀️
--Age: 16! 17 in June!
+- Pronouns: She/Her♀️
+- Age: 16! 17 in June!
 Hey! you can call me Noot! 
 
 # **I like**
