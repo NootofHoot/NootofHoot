@@ -6,6 +6,7 @@
 # **I like**
 - Animal Crossing! (Cityfolk is best!) 
 - Planting!🌱
+- Deltarune is peak!
 - Reading, Dante´s Divine Comedy is peak! 🔥
 - Making Music! Trumpet player! 🎺
 - Full stack develouper! 
