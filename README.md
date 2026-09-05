@@ -1,8 +1,7 @@
 
 ## **NOOT!** 🐦
 - Pronouns: She/Her♀️
-- Age: 17
-- Hey! you can call me Noot! -
+- - Hey! you can call me Noot! -
 
 # **I like**
 - Animal Crossing! (Cityfolk is best!) 
